@@ -1,4 +1,4 @@
-# Hi! I'm Levi Otoniel Parrales Choez 👋
+# I'm Levi Otoniel Parrales Choez
 
 Statistics Engineering Student at ESPOL
 
